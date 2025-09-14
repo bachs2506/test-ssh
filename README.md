@@ -1,2 +1,2 @@
-tiếng anh
+tiếng việt
 
